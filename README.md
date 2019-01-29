@@ -18,4 +18,4 @@ If you've found this tool useful, please take a moment to check out my music!
 
 SoundCloud: https://SoundCloud.com/MartianMoon
 
-Spotify: https://open.spotify.com/artist/58zBD9v1ac86uikZ90oJVJ
+Spotify: https://open.Spotify.com/artist/58zBD9v1ac86uikZ90oJVJ
